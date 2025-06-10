@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...integration system for a 1AI to rule them all
 - 📫 How to reach me ...johncolecorp@Icloud.com
 - 😄 Pronouns: ...im here and im human... i think
-- ⚡ Fun fact: ...ive made a keyless entrie system all sigle handedly.. wanna 🫣👀 @me 
+- ⚡ Fun fact: ...i am in the process of making keyless entrie system all sigle handedly.. wanna 🫣👀 @me also if you would like to help in the process it would be appreciated ✌️
 
 <!---
 Mr-Clean-Up/Mr-Clean-Up is a ✨ freebird not a jailbird ✨ repository because its `README.md` (this file) appears on your GitHub profile.
